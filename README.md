@@ -3,7 +3,7 @@ Please make reward checks payable to:
 
 NASA Federal Credit Union
 
-Cory Andrew Hofstad
+Cory Andrew Hofstad (Savings)
 
 PO Box 1910 Bowie, MD 20717-1910
 
